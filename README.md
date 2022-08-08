@@ -1,1 +1,0 @@
-# khodabumtariya_gitquest
